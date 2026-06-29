@@ -1,4 +1,4 @@
-# 
+# Personnalisé Fences modèles pour Mac OS | Ultime Fences modèles pour PC Windows. Avec nettoyage de fichiers inutiles et paramètres privés — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
